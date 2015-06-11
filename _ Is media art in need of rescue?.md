@@ -1,0 +1,3 @@
+This jiggly framework is breaking out of the Schema-F and creating theSchema-D or the [Jelloment]
+Media art is need of rescue!Creating a new name will not make a difference but just transfer the problems. The problems have to be addressed and media art refined.CONSTRAINTS WILL FORGE CREATIVITY and experimentation.
+As the technologies design predicts how the user is interacting with the work, it takes control over the meaning as it took control over the artist in the creation of the work and aestheticsWE HAVE TO FREE OURSELVES FROM PRESETS GIVEN BY TECHNOLOGY AND INDUSTRIALIZATION. NO COMPROMISES IN FAVOR OF TECHNOLOGY and disadvantages TOWARDS CONTENT
